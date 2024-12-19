@@ -1,1 +1,1 @@
-# OPI_lab7.2
+Egiazarov Maxim, connect graslvip10@gmail.com
